@@ -1,1 +1,2 @@
 I india is my contry
+All indians are my brothers and sisters
