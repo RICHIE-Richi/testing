@@ -4,3 +4,4 @@ I love my country
 All Indians are my brothers and sisters
 i love my country
 and my people
+i pledge my devotion
